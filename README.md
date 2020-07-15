@@ -1,0 +1,1 @@
+# friut_shop
